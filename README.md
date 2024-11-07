@@ -1,4 +1,4 @@
-# Blox Fruits: Auto Farm Level, Finder Full Moon, Anti Cheat Bypass Mobile Script
+# Blox Fruits: Auto Farm Level, Finder Full Moon, Anti Cheat Bypass PC Script
 
 Are you tired of spending countless hours grinding for experience points in your favorite Roblox games? Say goodbye to the tedious process of manual leveling up, and say hello to Auto Farm Level! This innovative feature is designed to help players level up faster.
 
